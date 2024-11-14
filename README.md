@@ -5,8 +5,8 @@
    
 -  
 - 📫 How to reach me - karan.blaine906@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: Male
+- ⚡ Fun fact: Life itself is Fun
 
 <!---
 Any feedback or suggesstions welcome
